@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @jamesdappsy
+- 👀 Looking forward to build the next DeFi Social Network
